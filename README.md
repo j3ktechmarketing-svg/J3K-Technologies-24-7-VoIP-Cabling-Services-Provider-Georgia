@@ -68,5 +68,5 @@ We combine technical precision with outstanding customer service to ensure your 
 
 With extensive expertise as a **24/7 VoIP Cabling Services Provider**, **VoIP Cabling Maintenance Installation Partner**, and **Telephone Cabling Repair Contractor in Georgia**, **J3K Technologies** is your go-to partner for high-performance communication systems.
 
-Reach out today for **emergency cabling assistance**, **scheduled maintenance**, or **professional telephone repair** — ensuring your business stays connected, efficient, and ready for growth.
+Reach out today for **emergency cabling assistance**, **scheduled maintenance**, or **professional telephone repair** - ensuring your business stays connected, efficient, and ready for growth.
 
